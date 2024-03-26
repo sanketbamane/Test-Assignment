@@ -1,3 +1,3 @@
 Sanket
 
-Bamne-alice
+Bamne
